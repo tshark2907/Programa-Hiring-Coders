@@ -1,0 +1,1 @@
+Estou fazendo parte do programa Hiring Coders promovido pela Gama Academy e adorei a forma com que os assuntos são ensinados através das aulas,de forma bem explicativa e objetiva! Esse programa tem me feito ter um foco maior e aprender bem mais do que da minha forma anterior, mesmo que ambas foram em ead.
